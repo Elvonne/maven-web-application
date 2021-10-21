@@ -15,6 +15,7 @@
 	We offer interview preparations and job assitance.
 	The Lord will never leave nor forsake us
 	The Lord is my strength, my refuge and my comforter
+	The Lord is Good
 	The shout of the King is in our midst. His name is JESUS.  HE IS OUR SUCCESS ACCESS KEY</h2>
 <hr>
 <div style="text-align: center;">
