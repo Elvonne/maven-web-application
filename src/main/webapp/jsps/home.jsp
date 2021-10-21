@@ -14,7 +14,7 @@
 	Landmark Technology is a an ideal online training  platform for DevOps and Cloud Engineers. 
 	We offer interview preparations and job assitance.
 	The Lord will never leave nor forsake us
-	The Lord is my Shedperdth
+	The Lord is my strength, my refuge and my comforter
 	The shout of the King is in our midst. His name is JESUS.  HE IS OUR SUCCESS ACCESS KEY</h2>
 <hr>
 <div style="text-align: center;">
