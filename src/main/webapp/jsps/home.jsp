@@ -16,6 +16,8 @@
 	The Lord will never leave nor forsake us
 	The Lord is my strength, my refuge and my comforter
 	The Lord is Good
+	God will make a way 
+	With God all things are possiblr
 	The shout of the King is in our midst. His name is JESUS.  HE IS OUR SUCCESS ACCESS KEY</h2>
 <hr>
 <div style="text-align: center;">
